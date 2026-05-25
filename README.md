@@ -1,1 +1,1 @@
-# hacker.uz
+# hacker.uz smartcity
