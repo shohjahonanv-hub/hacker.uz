@@ -1,1 +1,1 @@
-# hacker.uz smartcity
+# hacker.uz uzbekiston
