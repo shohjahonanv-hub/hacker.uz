@@ -1,1 +1,2 @@
 # hacker.uz uzbekiston
+UZB
